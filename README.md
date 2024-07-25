@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **Skiing, Golf, the Bruins**
 
-- 📫 How to reach me **donovan.f.ryan@gamil.com**
+- 📫 How to reach me **donovan.f.ryan@gmail.com**
 
 - 📄 Know about my experiences [https://docs.google.com/document/d/1OLSTrn4mJINeM919-JxIw6_uyd3uROR2WZygQNECacs/edit?usp=sharing](https://docs.google.com/document/d/1OLSTrn4mJINeM919-JxIw6_uyd3uROR2WZygQNECacs/edit?usp=sharing)
 
